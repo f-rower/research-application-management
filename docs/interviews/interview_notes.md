@@ -1,0 +1,4 @@
+# Note of Notes 
+
+## Links
+- 
